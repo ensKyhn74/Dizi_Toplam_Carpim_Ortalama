@@ -1,0 +1,1 @@
+# Dizi_Toplam_Carpim_Ortalama
